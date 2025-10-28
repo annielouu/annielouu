@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **CIS 5550 Internet and Web Systems**
 
-- 📫 Connect with me **github.com/annielouu**
+- 📫 Connect with me [https://www.linkedin.com/in/annielou-profile/]
 
 - 📄 Find my resume [https://drive.google.com/file/d/1tm6xdKyzh2ERN8XeaSJ1uZaCDKVZE3Qz/view?usp=sharing](https://drive.google.com/file/d/1tm6xdKyzh2ERN8XeaSJ1uZaCDKVZE3Qz/view?usp=sharing)
 
