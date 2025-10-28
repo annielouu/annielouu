@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **annielou@seas.upenn.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tm6xdKyzh2ERN8XeaSJ1uZaCDKVZE3Qz/view?usp=sharing](https://drive.google.com/file/d/1tm6xdKyzh2ERN8XeaSJ1uZaCDKVZE3Qz/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1tm6xdKyzh2ERN8XeaSJ1uZaCDKVZE3Qz/view?usp=sharing](https://drive.google.com/file/d/1tm6xdKyzh2ERN8XeaSJ1uZaCDKVZE3Qz/view)
 
 - ⚡ Fun fact **I like boxing when I'm not coding**
 
